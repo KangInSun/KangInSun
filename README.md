@@ -3,7 +3,6 @@
 ### Welcome to my github!!
 
 🙌 Hello, my name is KangInSun
-
 🏫 I'm student of Gwangju Software Meister high school
 
 ### E-mail :love_letter:
