@@ -9,7 +9,6 @@
 ### E-mail :love_letter:
 ```
 - s20002@gsm.hs.kr (School)
-- kangsun8115@naver.com (Personal)
 ```
 
 ### My Records :bar_chart: 
